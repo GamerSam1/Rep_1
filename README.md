@@ -1,2 +1,1 @@
-# Rep_1 
-this page is only for pepole that cant use social media. 
+If you  have any questions plase Fil free to  ask 
